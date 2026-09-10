@@ -404,9 +404,10 @@
             moments. May this new year of your life
             bring you many amazing experiences,
             good memories, and reasons to smile.
+            
             <br><br>
 
-            Keep being awesome and enjoy your day! 🌹✨
+            sorry kung Dili ko ka adto hehhe lab lab reyvenn 🌹✨
             <br><br>
 
             <b>Happy Birthday once again, Dan! 💖</b>
